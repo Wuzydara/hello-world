@@ -1,3 +1,3 @@
 # hello-world
-yayyyy, just for the practise.
+yayyyy, just here for the practise.
 about-me, mmmhm idk 
